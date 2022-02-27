@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Blog que trata sobre mis proyectos y los temas en los que estoy interesado.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Voy a tratar de subir posts sobre mis estudios y sobre el avance que he hecho en mis idiomas objetivos.
